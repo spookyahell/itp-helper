@@ -59,7 +59,9 @@ tgx would be an exmaple. - That site deserves 0 of the ad revenue requested.
 Almost all countries have strict laws regarding properties, including intellectual properties.
 <br>I sympathize with those who pirate, (ok, wait... hear me out)
 <br>because I also would favor a world where the whole world jointly owns everything and no individual entity owns anything.
-<br>Those who pirate either agree or are hipocrites.
+<br>Those who pirate either agree or are hippo-crites. (only if they are obese, otherwise they're just regular boring-ass* hypocrites)
+
+\* the <a href="http://www.tcax.org/docs/ass-specs.htm" target="_blank">subtitle format</a> btw, that is. (Called you dirty-minded...)
 
 ## DJT
 Donald Trump is known to be a hypocrite. He could very well be the "leader of the hypocrits"
@@ -67,13 +69,21 @@ Donald Trump is known to be a hypocrite. He could very well be the "leader of th
 <br>He's done other, worse crimes, so he probably has. (Although often enough the actual crimes were commited by his cronies, not by himself.)
 <br>Looking good, btw -- I'm projecting a win for Kamala in 2024. ...
 
-## <a href="https://www.courtlistener.com/docket/68362334/united-states-v-apple-inc/">[CourtListener]</a> DOJ is suing Apple. (That didn't ever happen while Trump was president.)
+## <a href="https://www.courtlistener.com/docket/68362334/united-states-v-apple-inc/" target="_blank">[CourtListener]</a> DOJ is suing Apple. (That didn't ever happen while Trump was president.)
 Even if Apple just pays 2$ (or 0.2% of their net worth... same thing), at least we will know what legal system in USA is capable of.
 <br>Some might say "Whatever price tag Apple is forced to pay, they'll just raise the price of the iPhones/iPads/Macs/MacBooks accordingly."
 <br>Yup, that would be nice. If people want the crappy tech, they should be forced to pay a crappy (overvalued) price.
 
 ### Cheap shot at Apple?
 Yessir.
+
+#### But don't you use Apple products too? - Doesn't that make you a hypocrite?
+Yup, I sure do... and yes it does.
+<br>Mainly Android/Windows...
+<br>but I do also use a fairly old iPad Mini 4 (which I bought used) [almost on a daily basis].
+<br>And recently acquired an older MacBook Air (also used when purchased)
+
+<strong>Newsflash:</strong> Most people and entities on this planet are in fact hypocrites in some way, shape or form.
 
 ## Coming back to sites that don't deserve any ad revenue...
 Are there other examples? Examples not within piracy? - Sure.
